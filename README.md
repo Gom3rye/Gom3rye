@@ -36,7 +36,7 @@ Here are some ideas to get you started:
 
 ## ✏️ Experience
 
-EWHA Womans University, Computer Science Engineering  (03.2020 ~ PRESNET)
+EWHA Womans University, Computer Science Engineering  (03.2020 ~ PRESENT)
 
 Ewha Womans University Intelligence System and Parallel Computer Architecture (IP-CAL) Lab Intern  (06.2021 ~ 09.2022)
 
