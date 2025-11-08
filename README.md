@@ -76,5 +76,3 @@ Encouragement Award at the poster session of the 2022-2 Ewha Capstone Design Pro
 <br>
 
 [![Solved.ac Profile](http://mazassumnida.wtf/api/v2/generate_badge?boj=hananim3324)](https://solved.ac/hananim3324/)
-
-![Myeongji's GitHub stats](https://github-readme-stats.vercel.app/api?username=gom3rye&show_icons=true&theme=radical)
