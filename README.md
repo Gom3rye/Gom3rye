@@ -49,17 +49,23 @@ Ewha Girls' Foreign Language High School  (03.2017 ~ 02.2020)
 <br>
 
 ## 🏆 Awards
-TOPCIT LEVEL 3. (05.2022)
+Individual Project Excellence Award, 
+Team Project Excellence Award, and 
+Model Student Award at Hyundai AutoEver SW School – Cloud Track  (11.2025)
 
-2020 SW Startup Hackathon Second Prize at Ewha Womans University  (09.2020)
-
-Outstanding Activity Team Award at the 2021 ORDA(Orientation, Renewal business plan, Doing project, Award) Startup Club at Ewha Womans University  (09.2021 ~ 01.2022)
-
-Encouragement Award at the 2022 Yonsei Initial Startup Package Startup Club Competition  (08.2022)
+Encouragement Award at the poster session of the 2022-2 Ewha Capstone Design Project  (03.2022 ~ 12.2022)
 
 Popularity Award and Encouragement Award at the 12th Ewha Business Plan Competition  (09.2022 ~ 11.2022)
 
-Encouragement Award at the poster session of the 2022-2 Ewha Capstone Design Project  (03.2022 ~ 12.2022)
+Encouragement Award at the 2022 Yonsei Initial Startup Package Startup Club Competition  (08.2022)
+
+Outstanding Activity Team Award at the 2021 ORDA(Orientation, Renewal business plan, Doing project, Award) Startup Club at Ewha Womans University  (09.2021 ~ 01.2022)
+
+2020 SW Startup Hackathon Second Prize at Ewha Womans University  (09.2020)
+
+TOPCIT LEVEL 3. (05.2022)
+
+
 
 <br><br>
 
