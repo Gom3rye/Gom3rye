@@ -51,7 +51,7 @@ Ewha Girls' Foreign Language High School  (03.2017 ~ 02.2020)
 ## 🏆 Awards
 Individual Project Excellence Award, 
 Team Project Excellence Award, and 
-Model Student Award at Hyundai AutoEver SW School – Cloud Track  (11.2025)
+Model Student Award at Hyundai AutoEver SW School – Cloud Track  (04.2025 ~ 11.2025)
 
 Encouragement Award at the poster session of the 2022-2 Ewha Capstone Design Project  (03.2022 ~ 12.2022)
 
